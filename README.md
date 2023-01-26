@@ -36,12 +36,12 @@ from Conrad’s travels to what was the Belgian colony, Congo, which served as h
 inspiration. Though the novel has been acknowledged as a critique of King Leopold’s
 abuses in Africa, Conrad also portrays a darkness of the continent and an African people
 deprived of humanity, as the Nigerian writer Chinua Achebe remarked almost sixty years
-later(Achebe 1977). Achebe remarks that Conrad sees darkness in Africa as almost palpable. </p>
+later(Achebe 1977). </p>
 
-
-
-
-To understand how these literary works undo stereotypes and reconstruct female subjectivity,
+<p>
+To understand how these literary works undo stereotypes and reconstruct female subjectivity, it is crucial to see these narratives as a looking
+glass where writers come to terms with their fragmented identities while giving their community tools to reinterpret women's experiences through
+other lenses. </p>
 
 
 
