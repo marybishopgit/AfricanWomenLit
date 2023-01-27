@@ -24,7 +24,7 @@ A good example is Haile Gerima’s Sankofa, a narrative that intends to restore 
 Also, Flame, Ingrid Sinclair’s film, a moving story that deals with the low status of women soldiers after the liberation of the country, focuses on women soldiers’ poverty and their exclusion from the spheres of power after the Independence of Zimbabwe. The process of liberation did not change women’s condition or minimize masculine privilege. Many debates on how women in the guerrillas were sexually abused and exploited during the war have been part and parcel of the historiography of women’s presence in the struggles of decolonization across the African continent. 
 
 <p align="center"> 
-<img src="https://newsreel.org/titleimages/FAAT-KINE.jpg" alt="Faat Kine" width="260" height="131"/>   
+<img src="https://newsreel.org/titleimages/FAAT-KINE.jpg" alt="Faat Kine" width="226" height="183"/>   
 </p>
 
 Ousmane Sembéne, a Senegalese filmmaker, known as the father of African cinema, also deals with history rewriting, as an attempt to right a wrong and educate his people. Sembene started his career writing novels but thought the screen would reach a larger audience in Africa. Sembéne usually empowers female characters, deconstructs stereotypes, and defies patriarchal power, unveiling traditional structures that may contribute to women disempowerment. In Faat Kiné Sembene portrays a day of joy in the protagonist's life as her children celebrate the baccalaureate diploma. The flashbacks let us know what the protagonist had to go through until that celebration day. A mother who struggled to survive in a sexist environment where she had to face disrespect and violence, Sembéne's protagonist overcomes all obstacles, becoming a successful woman.
