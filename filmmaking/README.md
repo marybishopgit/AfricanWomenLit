@@ -1,4 +1,4 @@
-# Filmmaking
+# :film_projector: Filmmaking
 
 ## Intro
 
@@ -9,6 +9,10 @@ Rosenstone argues that some aspects of history which never had any space in chil
 
 
 By abandoning realism and its connection with the social order, and promoting new forms of representing historical narratives, *New History Films* diverge from traditional historical narratives in content and form and create new form of telling stories by “mixing genres, blurring the distinction between the documentary and the dramatic film.” (Rosenstone 1995:5)
+
+<p align="center"> 
+<img src="https://www.cinema.ucla.edu/sites/default/files/sankofa.jpg" alt="Sankofa" width="340" height="220"/>   
+</p>
 
 A good example is Haile Gerima’s Sankofa, a narrative that attempts to restore African descent past through an emphasis on subjectivity and self-representation, dismantles the idea of enslaved people as voiceless and passive commodities. The filmmaker brings to the center of his narrative multiple voices by telling another narrative, through visual media that also permits imagination and reinterpretation. 
 
