@@ -14,7 +14,7 @@ By abandoning realism and its connection with the social order, and promoting ne
 <img src="https://www.cinema.ucla.edu/sites/default/files/sankofa.jpg" alt="Sankofa" width="340" height="220"/>   
 </p>
 
-A good example is Haile Gerima’s Sankofa, a narrative that attempts to restore African descent past through an emphasis on subjectivity and self-representation, dismantles the idea of enslaved people as voiceless and passive commodities. The filmmaker brings to the center of his narrative multiple voices by telling another narrative, through visual media that also permits imagination and reinterpretation. 
+A good example is Haile Gerima’s Sankofa, a narrative that intends to restore African descent past through an emphasis on subjectivity and self-representation by dismantling the idea of enslaved people as voiceless and passive commodities. Through visual media that also permits imagination and reinterpretation, Gerima brings to the center of his narrative a different historical perspective.
 
 
 <p align="center"> 
@@ -27,7 +27,7 @@ Also, Flame, Ingrid Sinclair’s film, a moving story that deals with the low st
 <img src="https://newsreel.org/titleimages/FAAT-KINE.jpg" alt="Faat Kine" width="260" height="131"/>   
 </p>
 
-Ousmane Sembéne, a Senegalese filmmaker, known as the father of African cinema, also deals with history rewriting, as an attempt to right a wrong and educate his people. Sembene started his career writing novels but thought the screen would reach African audiences more easily. Sembéne usually empowers female characters, deconstructs stereotypes, and defies patriarchal power, unveiling traditional structures. One of his celebrated films is Faat Kiné It portrays a day of joy in Kiné’s life as her children Aby and Djib celebrate the baccalaureate diploma. The flashbacks let us know what the protagonist had to go through until that celebration day. A mother who struggled to survive in a sexist environment where she had to face disrespect and violence, Sembéne's protagonist overcomes all obstacles, becoming a successful and independent woman.
+Ousmane Sembéne, a Senegalese filmmaker, known as the father of African cinema, also deals with history rewriting, as an attempt to right a wrong and educate his people. Sembene started his career writing novels but thought the screen would reach a larger audience in Africa. Sembéne usually empowers female characters, deconstructs stereotypes, and defies patriarchal power, unveiling traditional structures that may contribute to women disempowerment. One of his celebrated films is Faat Kiné It portrays a day of joy in Kiné’s life as her children Aby and Djib celebrate the baccalaureate diploma. The flashbacks let us know what the protagonist had to go through until that celebration day. A mother who struggled to survive in a sexist environment where she had to face disrespect and violence, Sembéne's protagonist overcomes all obstacles, becoming a successful and independent woman.
 	
 
 
