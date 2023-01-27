@@ -23,9 +23,9 @@ the role of literature and the work of art.</p>
 Female bodies played an important role in defining the emptiness of colonized territories, and, in many colonial narratives, they were treated as synonymous with colonized land. One of the notions spread by European colonialism on the African continent was the myth of the “virgin land” that implies a blank territory in which colonized populations “cannot claim aboriginal territorial rights, and white male patrimony is violently assured as the sexual military insemination of an interior void” (McClintock 30). </p>
 
 
-Metaphors of the colonized land as a woman ready to be deflowered have been part of colonial discourses around the globe. As a virgin, a woman is dispossessed of sexual desire and agency, becoming embedded in patriarchal tales of male sexual fantasy, the land also turns into a site for the male colonizer’s most perverted desires. As, McClintock affirms, women become 
+Metaphors of the colonized land as a woman ready to be deflowered have been part of colonial discourses around the globe. As a virgin, a woman is dispossessed of sexual desire and agency, becoming embedded in patriarchal tales of male sexual fantasy, the land also turns into a site for the male colonizer’s most perverted desires.  
 
-> the earth to
+> As, McClintock affirms, women becomethe earth to
 be discovered, entered, named, inseminated, and above all, owned *(McClintock 31)*.
 
 
@@ -48,13 +48,3 @@ other lenses. </p>
 
 
 
-1. :film_projector: [Filmmaking](https://github.com/marybishopgit/AfricanWomenLit/tree/main/filmmaking)
-2. caso 2
-
-> To have a line break without a paragraph, you will need to use two trailing spaces.
-Note that this line is separate, but within the same paragraph.
-
-
-<p align="center">
-  <img src="https://www.theparisreview.org/il/e4b8f842fe/large/Chinua-Achebe.jpg" alt="Chinua Achebe" width="320" height="240"/>
-</p>
