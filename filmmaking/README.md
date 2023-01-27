@@ -1,6 +1,6 @@
 # :film_projector: Filmmaking
 
-## Intro
+## Film and History
 
 In *Film and the Construction of a New Past*, Robert Rosenstone affirms that films have been a medium to reinterpret the past, thus, historians should be more sympathetic to the visual media, as they open up other perspectives to approach the past. (Rosenstone,5) For him, African filmmakers look at historical fissures by challenging notions of linearity and objectivity or neutrality of historical research. What he calls *New History Film* gives room to a multiplicity of voices while bringing to light untold stories. Here, filmmaking utilizes many strategies and techniques to bring to the screen the multifaceted historical narratives, becoming a legitimate data to rethink and rewrite historical narratives. 
 
