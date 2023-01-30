@@ -1,10 +1,12 @@
 >####  :books: The Chicken
-> Last year I was doing a creative writing course and was asked to write a short story. 
-> I had no inspiration to write it in the middle of the afternoon with lots of people around. It was a good exercise to try to put words on paper almost out of the blue. The chicken came out as something totally unexpected, even for me. I collected some images in my memory: houses, grandparents, family, love. 
-> The word reconciliation came out clear as I started talking about family as a big concept. And children always, or almost always, play this rolre within families. That's how I started writing *The Chicken*, and I hope to revisit this short story one day. 
+> Last year, in a creative writing course, I was asked to write a short story. 
+> I had no inspiration to write it in a room with lots of people around. It was a good exercise to try to put words on paper almost out of the blue. *The chicken* came out as something totally unexpected, even for me. I collected some images in my memory: houses, grandparents, family, children, love. 
+> The word reconciliation came out clear as I started talking about family. And children always, or almost always, play this role within families. That's how I started writing *The Chicken*, and I hope to revisit this short story one day. 
 
 
-In December, a few days before Christmas,Gary visited Grandma’s house. He asked the old woman for something quite weird for a boy of his age.
+
+
+In December, a few days before Christmas, Gary visited Grandma’s house. He asked the old woman for something quite weird for a boy of his age.
 Granny listened to the boy and asked him to explain what he meant to make sure she understood it.
 Her grandson, a ten-year-old boy arriving from the US, asked for such a simple thing. How could a boy raised in Washington D.C., a neighbor of Barack Obama, 
 come up with an idea like that? Though Gary’s desire was a surprise for her, the boy conquered the old woman’s heart when he said to
