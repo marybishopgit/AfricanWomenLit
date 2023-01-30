@@ -8,7 +8,7 @@
 
 
 
-[embed]https://github.com/marybishopgit/AfricanWomenLit/blob/main/creativeWriting/page_01.pdf[/embed]
+
 
 
 In December, a few days before Christmas, Gary visited Grandma’s house. He asked the old woman for something quite weird for a boy of his age.
