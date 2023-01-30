@@ -1,4 +1,6 @@
->####  :books: The Chicken
+# The Chicken
+
+##  :books: Intro
 > Last year, in a creative writing course, I was asked to write a short story. 
 > It was a good exercise to try to put words on paper almost out of the blue. *The chicken* came out as something totally unexpected, even for me. I collected some images in my memory: houses, grandparents, family, children, love. 
 > The word reconciliation came out clear as a big concept as soon as I started talking about family. And children always, or almost always, play this role within families. That's how I started writing *The Chicken*, and I hope to revisit this short story one day. 
@@ -7,7 +9,6 @@
 
 
 
-## The Chicken
 In December, a few days before Christmas, Gary visited Grandma’s house. He asked the old woman for something quite weird for a boy of his age.
 Granny listened to the boy and asked him to explain what he really meant to make sure she understood it.
 Her grandson, a ten-year-old boy arriving from the US, asked for such a simple thing. How could a boy raised in Washington D.C., a neighbor of Barack Obama, 
