@@ -1,7 +1,7 @@
 >####  :books: The Chicken
 > Last year, in a creative writing course, I was asked to write a short story. 
-> I had no inspiration to write it in a room with lots of people around. It was a good exercise to try to put words on paper almost out of the blue. *The chicken* came out as something totally unexpected, even for me. I collected some images in my memory: houses, grandparents, family, children, love. 
-> The word reconciliation came out clear as a big concept when I started talking about family. And children always, or almost always, play this role within families. That's how I started writing *The Chicken*, and I hope to revisit this short story one day. 
+> It was a good exercise to try to put words on paper almost out of the blue. *The chicken* came out as something totally unexpected, even for me. I collected some images in my memory: houses, grandparents, family, children, love. 
+> The word reconciliation came out clear as a big concept as soon as I started talking about family. And children always, or almost always, play this role within families. That's how I started writing *The Chicken*, and I hope to revisit this short story one day. 
 
 
 
@@ -9,7 +9,7 @@
 
 ## The Chicken
 In December, a few days before Christmas, Gary visited Grandma’s house. He asked the old woman for something quite weird for a boy of his age.
-Granny listened to the boy and asked him to explain what he meant to make sure she understood it.
+Granny listened to the boy and asked him to explain what he really meant to make sure she understood it.
 Her grandson, a ten-year-old boy arriving from the US, asked for such a simple thing. How could a boy raised in Washington D.C., a neighbor of Barack Obama, 
 come up with an idea like that? Though Gary’s desire was a surprise for her, the boy conquered the old woman’s heart when he said to
 Granny all he wanted was to hold a chicken and walk around with her.
@@ -32,12 +32,12 @@ The small skinny woman took care of everything, sweeping every corner as the win
 The old woman cleaned again, talking to herself sometimes.  
 
 
-After a while, the old woman took the courage to bother a neighbor. She put her head out of the window and called the woman with a gentle voice. 
+After a while, she took the courage to bother a neighbor. She put her head out of the window and called the woman with a gentle voice. 
 “Katie, I need to borrow a chicken for a few minutes. Would you have one?” asked Grandma, trying to solve the situation. However, to her surprise, 
 it wouldn’t be simple as she imagined. 
 
 
-“I cannot say I didn’t listen to your grandson asking for a chicken. I have no chickens here. I think my sister has. Send George to tell her the situation.”
+“I cannot say I didn’t listen to your grandson asking for a chicken. I have no chickens here. I think my sister has. Send George to tell her the situation,” said Katie, not ashamed to confess she was eavesdropping. 
 
 
 Grandma called her son George who never refused to do anything for the mother, but even George rejected the idea. Katie’s sister was a gossiper. 
