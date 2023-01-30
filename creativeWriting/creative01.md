@@ -8,6 +8,8 @@
 
 
 
+[embed][/embed]
+
 
 In December, a few days before Christmas, Gary visited Grandma’s house. He asked the old woman for something quite weird for a boy of his age.
 Granny listened to the boy and asked him to explain what he really meant to make sure she understood it.
